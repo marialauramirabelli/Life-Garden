@@ -1,1 +1,1 @@
-# Life-Garden
+# Life Garden
